@@ -1,2 +1,1 @@
-CTO at Radical Healthcare
 
